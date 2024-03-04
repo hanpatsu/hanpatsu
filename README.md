@@ -14,3 +14,10 @@ i love charisma house more than you
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/886288865156005918/1211882116518903878/IMG_20240227_114623.jpg?ex=65efd02c&is=65dd5b2c&hm=8c692f8021f7af367757a683315a49bf3a536591765efce09c155da1c3ddc493&">
 </p>
+
+<p align="center">
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcShQyOizNkEuFMLE5R7VACWaO1c77RVZAGUTw&usqp=CAU">
+</p>
+<p align="center">
+im covered in foam dawg
+</p>
