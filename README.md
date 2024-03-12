@@ -16,5 +16,5 @@ making graphics is a pain in the ass
 </p>
 
 <p align="center">
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcShQyOizNkEuFMLE5R7VACWaO1c77RVZAGUTw&usqp=CAU">
+<img src="https://cdn.discordapp.com/attachments/886288865156005918/1216915055799439400/IMG_20240312_090549.jpg?ex=66021f76&is=65efaa76&hm=a09993d92483dca29501e9d43bf2e5b65dd4bdd95fa05735d8af1ac5b0139182&">
 </p>
