@@ -4,7 +4,7 @@ src="https://cdn.discordapp.com/attachments/886288865156005918/12051459165797785
 </p>
 
 <p align="center">
-i love charisma house more than you
+you not even the fart.
 </p>
 
 <p align="center">
@@ -17,7 +17,4 @@ i love charisma house more than you
 
 <p align="center">
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcShQyOizNkEuFMLE5R7VACWaO1c77RVZAGUTw&usqp=CAU">
-</p>
-<p align="center">
-im covered in foam dawg
 </p>
