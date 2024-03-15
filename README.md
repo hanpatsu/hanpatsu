@@ -4,7 +4,7 @@ src="https://cdn.discordapp.com/attachments/886288865156005918/12051459165797785
 </p>
 
 <p align="center">
-making graphics is a pain in the ass
+THE pt charisma house fan
 </p>
 
 <p align="center">
