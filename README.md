@@ -10,9 +10,11 @@ THE pt charisma house fan
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/886288865156005918/1210592028715520020/Untitled476_20240223222010.png?ex=65eb1eaf&is=65d8a9af&hm=2f3bb5914e68417ecb089b5d54ffaa8671e49a96768e0aaea3ea6ce50d1db8bc&">
 </p>
-
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/886288865156005918/1211882116518903878/IMG_20240227_114623.jpg?ex=65efd02c&is=65dd5b2c&hm=8c692f8021f7af367757a683315a49bf3a536591765efce09c155da1c3ddc493&">
+stupid
+</p>
+<p align="center">
+<img src="https://i.imgur.com/doZpzJl.jpeg">
 </p>
 
 <p align="center">
