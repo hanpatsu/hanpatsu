@@ -6,7 +6,7 @@ hi im kei or dally or rin or nagi or whatever u wanna call me. i like charisma h
 </p>
 
 <p align="center">
-if i leave randomly thats either because my internet is failing me or i fell asleep while pt is on (happens OFTEN) i afk while i sleep so sometimes id accidentally move my pony ... lawl
+if i leave randomly thats either because my internet is failing me or i fell asleep while pt is on
 </p>
 
 <p align="center">
