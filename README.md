@@ -2,7 +2,7 @@
 <img src="https://imgur.com/oaM5Oni.png">
 </p>
 <p align="center">
-hi im kei or dally or rin or nagi or whatever u wanna call me. i like charisma house. Hahaha! w2i or leave a msg on guestbook and we can be bestfriends FOREVA check rentry for more kei stuff
+hi im kei or dally or rin or nagi or whatever u wanna call me. i like charisma house. Hahaha! w2i or leave a msg on guestbook and we can be bestfriends FOREVA check rentry for more kei stuff ALSO! NAWT FICTKIN i just like to steal characters names
 </p>
 
 <p align="center">
